@@ -9,7 +9,7 @@
   
   All this (`idaṁ sarvaṁ`) is rooted in time (`kālamūlam`: *Zeitwurzel*),\
   being or non-being (`bhāvābhāvau`),\
-  happy or not (`sukhāsukhe`).\
+  happiness or unhappiness (misery) (`sukhāsukhe`).\
   Time cooks (ripens?) the creatures (`kālaḥ pacati bhūtāni`),\
   time draws them together (`kālaḥ saṁharati prajāḥ`), \
   [alt: *time destroys them*]\
